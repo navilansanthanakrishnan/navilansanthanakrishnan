@@ -1,1 +1,1 @@
-computer engineering student @ UC Santa Cruz 
+computer engineering  @ UC Santa Cruz 
