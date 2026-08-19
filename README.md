@@ -1,1 +1,1 @@
-computer engineering  @ UC Santa Cruz
+ce  @ UC Santa Cruz
